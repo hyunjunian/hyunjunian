@@ -1,3 +1,1 @@
-* 좋아하는 활동: 모방, 창조
-* 인생 목표: 매주 나의 몸과 마음을 더 건강하게 하기
-
+> Making myself less foolish every day.
